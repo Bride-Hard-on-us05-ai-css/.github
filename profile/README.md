@@ -8,7 +8,7 @@ The world of cinema is continually evolving, offering a variety of f𝚒lms that
 
 ### [➤ ►🌍📺📱👉 Bride Hard (2025) F𝚞𝚕l Mo𝚟ie](https://t.co/crVteRlbxZ)
 
-<a href="https://t.co/crVteRlbxZ" rel="nofollow"><img src="https://media.themoviedb.org/t/p/w220_and_h330_face/eYjKdG0HwlwMAOXKVb7AJet933C.jpg" alt="" style="max-width: 100%;"></a></p>
+<a href="https://t.co/crVteRlbxZ" rel="nofollow"><img src="https://media.themoviedb.org/t/p/w220_and_h330_face/pVli4kL16OFYPWvn5yTnZusX4l0.jpg" alt="" style="max-width: 100%;"></a></p>
 *Bride Hard Official Poster*
 
 # Related Keywords
